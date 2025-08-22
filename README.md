@@ -24,7 +24,7 @@ I enjoy combining creativity with technology—building apps, designing digital 
 
 ## 📫 Contact  
 - **Email:** richwellmhar@gmail.com / richwellmhar@yahoo.com  
-- **Facebook:** [Richwell Calaguan](https://www.facebook.com/richwell.calaguan)  
-- **Instagram:** [Your Instagram Profile](https://www.instagram.com/rchwllclgn07)  
-- **X (formerly Twitter):** [Your Twitter Profile](https://x.com/Calaguan07)  
-- **YouTube:** [Your YouTube Channel](https://www.youtube.com/@RichieProductionsOFFICIAL)  
+- **Facebook:** [Richwell Mhar Pampolina Calaguan](https://www.facebook.com/richwell.calaguan)  
+- **Instagram:** [@rchwllclgn07](https://www.instagram.com/rchwllclgn07)  
+- **X (formerly Twitter):** [@Calaguan07](https://x.com/Calaguan07)  
+- **YouTube:** [Richwell Mhar Calaguan](https://www.youtube.com/@RichieProductionsOFFICIAL)  
