@@ -1,7 +1,8 @@
-# 👋 Hi, I'm Richwell Mhar  
+# 👋 Hi, I'm Richwell Mhar Calaguan!
 
 ## 🚀 Introduction  
-I’m a student and aspiring developer with a passion for **programming** and **multimedia creation**.  
+I’m currently a 4th year student with a course of Bachelor of Science in Information Technology under College of Computer Studies at Laguna State Polytechnic University - Santa Cruz (Main) Campus.
+An aspiring developer with a passion for **programming** and **multimedia creation**.  
 I enjoy combining creativity with technology—building apps, designing digital content, and exploring how code and media work together to tell stories or solve problems.  
 
 ## 🎯 Goals  
