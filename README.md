@@ -23,7 +23,7 @@ I enjoy combining creativity with technology—building apps, designing digital 
 - Exploring creative tools to enhance projects visually and interactively  
 
 ## 📫 Contact  
-- **Email:** richwellmhar@gmail.com / richwellmhar@yahoo.com  
+- **Email:** richwellmhar@gmail.com / richwellmhar@yahoo.com / richwellcalaguan@outlook.com
 - **Facebook:** [Richwell Mhar Pampolina Calaguan](https://www.facebook.com/richwell.calaguan)  
 - **Instagram:** [@rchwllclgn07](https://www.instagram.com/rchwllclgn07)  
 - **X (formerly Twitter):** [@Calaguan07](https://x.com/Calaguan07)
